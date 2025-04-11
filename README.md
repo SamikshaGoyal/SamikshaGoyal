@@ -3,7 +3,7 @@
 - 🌱 Currently learning Java and Python frameworks (advanced)
 - 💞️ Looking forward to collaborate on linkedIn , Youtube and more focus is to enhance the tech world with the tech knowledge
 - 📫 How to reach me ..www.linkedin.com/in/samiksha-goyal-422083260 and www.youtube.com/@GoCodeWithSam Looking forward to get connected..
-- 😄 Pronouns: ...
+- 😄 Pronouns: She / Her
 - ⚡ Fun fact: ...Cool ,  Enthusiastic , Funny , know more after getting connected.
 
 <!---
